@@ -13,5 +13,5 @@ Live DEmo - https://t.me/WatcherGuruStorebot
 
 Instructions inside the zip.
 
-for the passcode of the zip file contact https://t.me/SomebodyRich
+for the passcode of the zip file contact [https://t.me/watcher_guru_botzip](https://t.me/watcher_guru_botzip)
 
